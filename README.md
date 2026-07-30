@@ -1,4 +1,4 @@
-![Alt Tag](https://cdn.discordapp.com/attachments/1223392595078680647/1532307680129978438/a49c6e6d4f6cc21c9ae0d4586a4e0590.gif?ex=6a6c603b&is=6a6b0ebb&hm=e88d352925dc7a976e9f5dcf2c553cbedd454234f433b85832aadcc93f12a868&)
+![Alt Tag](https://cdn.discordapp.com/attachments/1223392595078680647/1532449318592577720/Untitled3_20260730210553.png?ex=6a6ce425&is=6a6b92a5&hm=b85c2558b11f263d28ea12a3f08e3a6cf8ee38c39d7e75e851e4cad7aaa147c0&)
 ㅤɱเɠµεℓ σ'ɦα૨α ყµɱε ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[αƭαɓσσҡ](https://migsdoll.atabook.org) [ƭเҡƭσҡ](https://www.tiktok.com/@migspuppy?_r=1&_t=ZN-96rB6HA00Ic)
 
 
